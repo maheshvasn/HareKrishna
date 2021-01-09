@@ -1,3 +1,2 @@
-# Maha Mantra
-Hare Krishna Hare Krishna Krishna Krishna Hare Hare <br/>
-Hare Rama Hare Rama Rama Rama Hare Hare
+# HareKrishna
+Please start with Maha Mantra
