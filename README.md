@@ -1,3 +1,3 @@
 # Maha Mantra
-Hare Krishna Hare Krishna Krishna Krishna Hare Hare
+Hare Krishna Hare Krishna Krishna Krishna Hare Hare <br/>
 Hare Rama Hare Rama Rama Rama Hare Hare
