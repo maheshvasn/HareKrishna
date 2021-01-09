@@ -1,2 +1,2 @@
 # HareKrishna
-About Lord Krishna
+Please start with Maha Mantra
